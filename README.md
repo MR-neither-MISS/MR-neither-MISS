@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @MR-neither-MISS
 - 👀 I’m interested in code
-- 🌱 I’m currently learning how to make mysrlf best in one part
+- 🌱 I’m currently learning how to make myself best in one part
 - 💞️ I’m looking to collaborate on learning
 - 📫 How to reach me 1941304704@qq.com
 
